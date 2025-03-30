@@ -1,3 +1,5 @@
+![Software Developer](https://github.com/user-attachments/assets/ab3fb32f-a3b6-4209-a383-3e20772251e0)
+
 Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Pugisho Pule
 ====================================================================================================================================
 
